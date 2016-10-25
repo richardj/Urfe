@@ -40,7 +40,7 @@ My footfalls are afterlife, thick filled with grey fog, cold stone walls choked 
 
 Urfe: “Hello? Hello?”
 
-The words bounce off the walls and answer themselves. There are no books to register my presence, no tomes to soak the cracked (plangent?) of my voice. Where did the books go? Were they removed, or did they flee? Was culture, the pitiful winging milk sop exiled from the vacuity of Locus Eyrie? No. Unread, the books were burned in the crematorium in public show of deliverance from evil. The library is as useful as a graveyard, and it's bleeding to death.
+The words bounce off the walls and answer themselves. There are no books to register my presence, no tomes to soak the cracked plangence of my voice. Where did the books go? Were they removed, or did they flee? Was culture, the pitiful winging milk sop exiled from the vacuity of Locus Eyrie? No. Unread, the books were burned in the crematorium in public show of deliverance from evil. The library is as useful as a graveyard, and it's bleeding to death.
 
 I make my way through the building and up a wide stairwell. The air is dank, musty. My steps slow, deliberate. I listen for signs of life but there are none.
 
