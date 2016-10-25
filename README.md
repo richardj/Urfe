@@ -36,7 +36,7 @@ In the center of this godforsaken scrapyard stands (The Rule Of The Open Eye?). 
 
 Tightened with anxiety I summon the strength to prise the door open. The door groans on it's hinges, unwilling to share it's bounty. (?)
 
-My footfalls are afterlife, thick filled with grey fog, cold stone walls choked by dense cobwebs and dust. I enter the main reading room, a formidable atrium, hostile, gagged by freezing cold. On the ceiling is a huge glass (?) stained with what looks like a picture of a slaughtered hog. Much of the glass is shattered, distorting the image, the sharp edges look like scimitar blades. A hole in the roof leaks the black light of the witching hour from outside. The silence is so thick you could eat it. I stand, quieted and listening.
+My footfalls are afterlife, thick filled with grey fog, cold stone walls choked by dense cobwebs and dust. I enter the main reading room, a formidable atrium, hostile, gagged by freezing cold. On the ceiling is a huge glass mandala stained with what looks like a picture of a slaughtered hog. Much of the glass is shattered, distorting the image, the sharp edges look like scimitar blades. A hole in the roof leaks the black light of the witching hour from outside. The silence is so thick you could eat it. I stand, quieted and listening.
 
 Urfe: “Hello? Hello?”
 
