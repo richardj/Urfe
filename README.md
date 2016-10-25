@@ -46,7 +46,7 @@ I make my way through the building and up a wide stairwell. The air is dank, mus
 
 Urfe: “Hello? Hello?”
 
-A noise behind me, something clatters to the floor in the room below. I turn my limbs in time to see a black shape skate across the hall and disappear.
+A noise behind me, something clatters to the floor in the room below. I turn on my heels in time to see a black shape skate across the hall and disappear.
 
 Urfe: “Hello?! Stop!”
 
