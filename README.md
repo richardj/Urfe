@@ -50,7 +50,7 @@ A noise behind me, something clatters to the floor in the room below. I turn on 
 
 Urfe: “Hello?! Stop!”
 
-No response, I stare transfixed unable to move. Just then a shadow snakes across the ceiling, it's owner hidden from sight. I race for the stairs, trip over the rock (?) that borders the stairwell. My knee crunches into the top step, forcing it backwards into the joint. An agonizing bolt shoots up through the hip.
+No response, I stare transfixed unable to move. Just then a shadow snakes across the ceiling, its owner hidden from sight. I race for the stairs, trip over the rock (?) that borders the stairwell. My knee crunches into the top step, forcing it backwards into the joint. An agonizing bolt shoots up through the hip.
 
 My ears and teeth pop as my brain registers the thud of pain, my heart hammering through my bloodless chest with rising panic. I grab for the (?) that hangs loose in the (?). With both hands I force the joint forward again and the knee cap snaps back into place. I look up, through burning eyes I see the creeping shadow climbing the stairs, swallowing the last pieces of light in it's wake. 
 
@@ -60,7 +60,7 @@ The shadow stops and starts to retreat.
 
 Urfe: “Show yourself!”
 
-I get to my feet and limp down the stairs, I am the pursuer now although crippled with pain. The specter sucks out the remaining light as it shrinks away and I'm drawn downward towards it's invisible lair. I reenter the reading room, unsure of what insanity draws me in. On a large oak table guarding the door is an envelope sealed with a wax stamp. I recognise the stamp and a million spikes of the fire snake rush up my spine. My eyes dart around the room, my hearing's like a dogs. My flesh prickles with dread as I break open the envelope with shaking hands. Inside there's a playing card, I take it out slowly. The ten of clubs...
+I get to my feet and limp down the stairs, I am the pursuer now although crippled with pain. The specter sucks out the remaining light as it shrinks away and I'm drawn downward towards its invisible lair. I reenter the reading room, unsure of what insanity draws me in. On a large oak table guarding the door is an envelope sealed with a wax stamp. I recognise the stamp and a million spikes of the fire snake rush up my spine. My eyes dart around the room, my hearing's like a dogs. My flesh prickles with dread as I break open the envelope with shaking hands. Inside there's a playing card, I take it out slowly. The ten of clubs...
 
 Urfe: “Ten of clubs? Is that supposed to mean something?”
 
@@ -68,7 +68,7 @@ There are words on the reverse side written in what I hope is red ink. When you'
 
 “When you're out, we're IN.”
 
-The voice is so close it feels like it's inside me, I'm frozen to the spot. I lift my eyes expecting to face my doom. My (?) is heavy as a headweight. At the far end of the room, over fifty feet of murk away the phantom stands, arms outstreched. Black on black, so black it shines. A sightless likeless whip in the fabric of existence. Sans eyes it stares at me, and I stare back, hypnotized. And then it begins.
+The voice is so close it feels like it's inside me, I'm frozen to the spot. I lift my eyes expecting to face my doom. My neck is heavy as a headweight. At the far end of the room, over fifty feet of murk away the phantom stands, arms outstreched. Black on black, so black it shines. A sightless likeless whip in the fabric of existence. Sans eyes it stares at me, and I stare back, hypnotized. And then it begins.
 
 Slowly the arms begin to insinuate over the walls, a dark infusion rising upwards and outwards. (?) eating the blackness in it's wake. The fingers distinct, elongated and black spikes that move ever closer to my fixated stiff body. Cemented to the spot in terror. The head and body of the phantom rising to the height of the ceiling, a monstrous black mouth swallowing the library whole. Moving slowly, purposefully and steadily towards me.
 
